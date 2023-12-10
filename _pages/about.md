@@ -54,4 +54,6 @@ Para que pueda ser mas preciso en su consulta puede llenar el siguiente formular
 
 TENEMOS UNA COMUNIDAD, SI QUIERES ENTERARTE INGRESA: [CLICK AQUI](https://chat.whatsapp.com/E0Vo2H7KUaIAIxAZogth0y)
 
+Todos los derechos reservados al @instituto-franklin-turing S.R.L.
+
 
