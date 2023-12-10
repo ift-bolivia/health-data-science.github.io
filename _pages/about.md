@@ -49,6 +49,7 @@ OFRECEMOS LOS SIGUIENTES TIPOS DE CONSULTORIA
 
 Para mas informacion sobre las consultorias envienos un mensaje al siguiente correo: 
 instituto.fr.tu@gmail.com
+
 Para que pueda ser mas preciso en su consulta puede llenar el siguiente formulario: [CLICK AQUI](https://docs.google.com/forms/d/e/1FAIpQLSfBbddMd1ttyFfilsYjqfpkfXxjShA7oCn_3FhQr7M4igbQjw/viewform)
 
 
