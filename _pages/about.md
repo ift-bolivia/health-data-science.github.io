@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Instituto Franklin Turing | Franklin Turing Institute"
+title: "Instituto Franklin Turing"
 excerpt: "About me"
 author_profile: true
 redirect_from: 
